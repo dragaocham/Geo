@@ -12,4 +12,4 @@ geolim012@gmail.com
 
 @Geol.gl
 
-![descrição do GIF](https://tenor.com/pt-BR/view/joker-ha-gif-717265033515734384)
+![descrição do GIF](https://media1.tenor.com/m/cTUIoT8MBCYAAAAC/joker.gif)
